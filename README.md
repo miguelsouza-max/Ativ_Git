@@ -1,3 +1,5 @@
+AI VOCÊ TÁ DEMONSTRANDO A ESSÊNCIA
+
 sim, você está lendo isso.
 sim, você vai continuar lendo isso, mesmo que seja idiota.
 sim, eu vou continuar escrevendo coisas retóricas e incoesas até que você desista de ler.

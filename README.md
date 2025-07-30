@@ -1,4 +1,5 @@
 AI VOCÊ TÁ DEMONSTRANDO A ESSÊNCIA!
+ESSE É O ESPÍRITO DA PARADA
 
 sim, você está lendo isso.
 sim, você vai continuar lendo isso, mesmo que seja idiota.
